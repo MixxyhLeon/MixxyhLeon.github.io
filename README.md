@@ -7,3 +7,5 @@
 [因你与我同行](https://www.youtube.com/watch?v=QA15Qiq_oJo)
 
 [进入你的同在/Into Your Presence](https://www.youtube.com/watch?v=PVxCVNghAl4)
+
+[主我願單屬你](https://www.youtube.com/watch?v=NLtyW6C0-T0)
